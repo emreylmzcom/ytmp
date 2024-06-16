@@ -10,13 +10,6 @@ Youtube MP3 MP4 İndirici
 ![](https://raw.githubusercontent.com/delosemre/resimler/master/ytmp.PNG)
 
 ## İletişim
-delosemre@outlook.com <br>
-delosemre@kernelblog.org <br>
+emre@emreylmz.com <br>
 https://emreylmz.com <br>
-https://kernelblog.org <br>
-https://t.me/delosemre <br> 
-https://t.me/kernelblog <br> 
-https://t.me/kernel_blog <br> 
-https://twitter.com/kernel_blog <br> 
-http://instagram.com/kernelblog
 
